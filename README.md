@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @G-sathwik
-- 👀 I’m a AI ENTHUSIAT| WEB DEVELOPER 
+- 👀 I’m a AI ENTHUSIAST| WEB DEVELOPER 
 - 🌱 I’m Currently exploring the feild of AI and ML 
 - 💞️ I’m looking to collaborate on mostly which has my skills 
 - 📫 How to reach me Sathwikgottipati@gmail.com
